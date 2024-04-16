@@ -1,4 +1,4 @@
-[![MasterHead](https://i.pinimg.com/originals/a0/f8/5c/a0f85c35e406acb5b84c13dae888d5a3.gif)]
+[![MasterHead](https://miro.medium.com/v2/resize:fit:1280/0*s6vxTa1WdZfRY06U.gif)]
 <h1 align="center">Hi 👋, I'm KUMAR NAVDEEP</h1>
 <h3 align="center">A DATA ANALYST CUM DATA SCIENTIST FROM INDIA</h3>
 <img align="right" alt="coding" width="400" src="https://i.pinimg.com/originals/91/16/8b/91168b4873f6659b3e9fdfe4b89cd864.gifhttps://i.pinimg.com/originals/91/16/8b/91168b4873f6659b3e9fdfe4b89cd864.gif">
