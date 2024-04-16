@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **knknavdeep57@gmail.com**
 
-- ⚡ Fun fact **I AM DOMINANT AND FUNNY**
+- ⚡ Fun fact **I AM SPORTS LOVER AND FUNNY**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
